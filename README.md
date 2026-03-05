@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AACR040518MCHLRBA7
+AACR040518MCHLRBA7
